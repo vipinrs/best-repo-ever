@@ -1,2 +1,2 @@
 # best-repo-ever
-by Vipin
+by Vipin Reddy
